@@ -1,11 +1,16 @@
-Red Jersey - http://www.nbastore.eu/stores/nba/en/c/promotions/jerseysfb#&&/wEXAQUIUXVlcnlVUkwFxgJmaF92aWV3X3NpemU9MzYmY2hhbm5lbD1EZXNrdG9wJnBhZ2VfdGVtcGxhdGU9QnJvd3NlK1BhZ2UmZmhfcmVmcGF0aD04YzgxMzhlYS01NTNmLTIwMDctZDEyOC00ZDQxZGFjZGNjY2YmZmhfcmVmdmlldz1saXN0ZXImZmhfcmVmZmFjZXQ9bmJhODEmZmhfbG9jYXRpb249JTJmJTJmbmJhJTJmZW5fR0IlMmZjY3lfcmVnaW9uX2F2YWlsYWJpbGl0eV9uYmElM2UlN2JnYnBfcmVnaW9uX2diX25iYSU3ZCUyZmNhdGVnb3JpZXMlM2MlN2JuYmFfbmJhNTUxNTclN2QlMmZjYXRlZ29yaWVzJTNjJTdibmJhX25iYTU1MTU3X25iYTYzMjE0JTdkJTJmbmJhODElM2UlN2JyMTg2MCU3ZJroL+XyVa0a8Ez3qdBngn3rbOw31bJdm8ViCFgH4Ika
-Black Jersey - http://www.nbastore.eu/stores/nba/en/c/promotions/jerseysfb#&&/wEXAQUIUXVlcnlVUkwFxgJmaF92aWV3X3NpemU9MzYmY2hhbm5lbD1EZXNrdG9wJnBhZ2VfdGVtcGxhdGU9QnJvd3NlK1BhZ2UmZmhfcmVmcGF0aD04YzgxMzhlYS01NTNmLTIwMDctZDEyOC00ZDQxZGFjZGNjY2YmZmhfcmVmdmlldz1saXN0ZXImZmhfcmVmZmFjZXQ9bmJhODEmZmhfbG9jYXRpb249JTJmJTJmbmJhJTJmZW5fR0IlMmZjY3lfcmVnaW9uX2F2YWlsYWJpbGl0eV9uYmElM2UlN2JnYnBfcmVnaW9uX2diX25iYSU3ZCUyZmNhdGVnb3JpZXMlM2MlN2JuYmFfbmJhNTUxNTclN2QlMmZjYXRlZ29yaWVzJTNjJTdibmJhX25iYTU1MTU3X25iYTYzMjE0JTdkJTJmbmJhODElM2UlN2JyMTg2MCU3ZJroL+XyVa0a8Ez3qdBngn3rbOw31bJdm8ViCFgH4Ika
-White Jersey - http://www.nbastore.eu/stores/nba/en/c/promotions/jerseysfb#&&/wEXAQUIUXVlcnlVUkwFxgJmaF92aWV3X3NpemU9MzYmY2hhbm5lbD1EZXNrdG9wJnBhZ2VfdGVtcGxhdGU9QnJvd3NlK1BhZ2UmZmhfcmVmcGF0aD04YzgxMzhlYS01NTNmLTIwMDctZDEyOC00ZDQxZGFjZGNjY2YmZmhfcmVmdmlldz1saXN0ZXImZmhfcmVmZmFjZXQ9bmJhODEmZmhfbG9jYXRpb249JTJmJTJmbmJhJTJmZW5fR0IlMmZjY3lfcmVnaW9uX2F2YWlsYWJpbGl0eV9uYmElM2UlN2JnYnBfcmVnaW9uX2diX25iYSU3ZCUyZmNhdGVnb3JpZXMlM2MlN2JuYmFfbmJhNTUxNTclN2QlMmZjYXRlZ29yaWVzJTNjJTdibmJhX25iYTU1MTU3X25iYTYzMjE0JTdkJTJmbmJhODElM2UlN2JyMTg2MCU3ZJroL+XyVa0a8Ez3qdBngn3rbOw31bJdm8ViCFgH4Ika
-James Harden Head Shot - https://www.google.co.uk/imgres?imgurl=http://a.espncdn.com/combiner/i?img%3D/i/headshots/nba/players/full/3992.png%26w%3D350%26h%3D254&imgrefurl=http://www.espn.com/nba/player/_/id/3992/james-harden&h=254&w=350&tbnid=dNBgQRKn9_3wyM:&tbnh=145&tbnw=200&usg=__L1hmt_p27lJaTuWn-HLl894CqjE%3D&vet=10ahUKEwi0-ubB9YbYAhVHOBoKHWuCBy0Q_B0IxgEwGA..i&docid=FErK9CVpynkwrM&itg=1&sa=X&ved=0ahUKEwi0-ubB9YbYAhVHOBoKHWuCBy0Q_B0IxgEwGA
-Chris Paul Head Shot - https://www.google.co.uk/imgres?imgurl=http://a.espncdn.com/combiner/i?img%3D/i/headshots/nba/players/full/3992.png%26w%3D350%26h%3D254&imgrefurl=http://www.espn.com/nba/player/_/id/3992/james-harden&h=254&w=350&tbnid=dNBgQRKn9_3wyM:&tbnh=145&tbnw=200&usg=__L1hmt_p27lJaTuWn-HLl894CqjE%3D&vet=10ahUKEwi0-ubB9YbYAhVHOBoKHWuCBy0Q_B0IxgEwGA..i&docid=FErK9CVpynkwrM&itg=1&sa=X&ved=0ahUKEwi0-ubB9YbYAhVHOBoKHWuCBy0Q_B0IxgEwGA
-Player Statistics - https://www.basketball-reference.com/teams/HOU/leaders_career.html
-Rockets Team Roster statistics - http://www.espn.com/nba/team/roster/_/name/hou/houston-rockets
-                               - http://www.nba.com/rockets/roster
-Rockets Logo - https://hdlogo.wordpress.com/2016/02/17/nba-hd-logos-2015-16/houston-rockets-hd-logo-2/
-git lab 4 was used
+I used different navigation bar styles to design the website in order to make it easier for the user to use
+the website at different levels. With the mobile style, I chose to use a drop-down menu to view the navigation
+as would be less space on the screen to access the different links, I then chose to enlarge the menu vertically
+for the media screen as there is more space to fit the tabs on that type of screen, finally for the larger
+screens I chose to make fix the bar to the top of the screen so that the user doesn't have to scroll up to the
+top of the screen to navigate the site.
+
+I chose to make the site a single page app, as I believe that is the best way to showcase all the information
+easily and ensures that the user doesn't find themselves at a dead-end while traversing the site.
+
+I used the Google maps API to find and mark the location of the team stadium on the site, so that the usr can
+find the location directly on the website and not have to search elsewhere. by using the API instead of an image
+the user can zoom in and out to help further pinpoint the location.
 Google maps with marker AP - https://developers.google.com/maps/documentation/javascript/adding-a-google-map
+
+I also re visited the lab session code to help me to write the code for the website.
