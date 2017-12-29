@@ -1,0 +1,54 @@
+/* GLOBAL AND MOBILE STYLES FIRST */
+body {
+	background: #F8F8F8;
+	text-align: center;
+	font-family: arial;
+	margin: auto;
+}
+
+section{
+	background: white;
+	color: black;
+}
+img[src="resources/RocketsLogo.png"] {
+	max-width:100%;
+	height: auto;
+}
+table {
+	margin: auto;
+}
+nav {
+	display: none;
+}
+nav a {
+  background: black;
+  color: white;
+  display: block;
+  text-decoration: none;
+  width: 100%;
+  padding: 1em;
+}
+#menu {
+	background: #fff;
+	text-decoration: none;
+}
+.drop-down {
+	display: block;
+	position: center;
+}
+h2, h3{
+	font-family: Arial Black ; 
+}
+p {
+	margin: center;
+}
+/* FIRST BREAKPOINT (MEDIUM SIZE) */
+@media screen and (min-width: 500px) {
+
+/* END FIRST BREAKPOINT */
+
+
+/* SECOND BREAKPOINT (DESKTOP SIZE) */
+@media screen and (min-width: 1000px) {
+
+/* END SECOND BREAKPOINT */
